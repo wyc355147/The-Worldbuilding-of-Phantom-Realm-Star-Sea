@@ -1,1 +1,1 @@
-＃The Worldbuilding of Phantom Realm: Star Sea
+＃ The Worldbuilding of Phantom Realm: Star Sea
